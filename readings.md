@@ -13,9 +13,7 @@
 
 -Lott, Eric - "Love and Theft: Blackface Minstrelsy and the American Working Class"
 
--Saxton, Alexander - The Rise and Fall of the White Republic: Class Politics and
-
-**Mass Culture in Nineteenth Century America**
+-Saxton, Alexander - The Rise and Fall of the White Republic: Class Politics and Mass Culture in Nineteenth Century America"
 
 -Takaki, Ronald - "A Different Mirror: A History of Multicultural America"
 
