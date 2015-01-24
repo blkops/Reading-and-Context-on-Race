@@ -1,13 +1,14 @@
-Here's a space to compile a list of readings for education on race issues of ALL SORTS. Feel free to add any texts or categories that need to be here!
+**Here's a space to compile a list of readings for education on race issues of ALL SORTS. Feel free to add any texts or categories that need to be here!**
 
 **Historical Context of Racial Oppression (in the USA)**
--Lynch, Willie                The Making of a Slave (PDF)
--Blackmon, Douglas A.            Slavery By Another Name
--Churchill, Ward                      Agents of Repression: The FBI's Secret Wars Against the
--Vander Wall, Jim                    Black Panther Party and the American Indian Movement
--DuBois, W.E.B.                      Black Reconstruction
--Lott, Eric                                 Love and Theft: Blackface Minstrelsy and the American Working Class
--Saxton, Alexander                  The Rise and Fall of the White Republic: Class Politics and
+
+-Lynch, Willie - "The Making of a Slave" (PDF)
+-Blackmon, Douglas A. - Slavery By Another Name
+-Churchill, Ward - Agents of Repression: The FBI's Secret Wars Against the
+-Vander Wall, Jim - Black Panther Party and the American Indian Movement
+-DuBois, W.E.B. - Black Reconstruction
+-Lott, Eric - Love and Theft: Blackface Minstrelsy and the American Working Class
+-Saxton, Alexander - The Rise and Fall of the White Republic: Class Politics and
 
 **Mass Culture in Nineteenth Century America**
 -Takaki, Ronald                        A Different Mirror: A History of Multicultural America
