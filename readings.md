@@ -11,28 +11,28 @@
 
 -[DuBois, W.E.B. - "Black Reconstruction"](http://www.socialism.com/drupal-6.8/sites/all/pdf/class/Du%20Bois-Black%20Reconstruction%20in%20America.PDF)
 
--[Lott, Eric - "Love and Theft: Blackface Minstrelsy and the American Working Class"](http://www.amazon.com/Love-Theft-Blackface-Minstrelsy-American/dp/0195320557)
+-[Lott, Eric - "Love and Theft: Blackface Minstrelsy and the American Working Class"](http://www.goodreads.com/book/show/166888.Love_and_Theft?from_search=true)
 
--Saxton, Alexander - The Rise and Fall of the White Republic: Class Politics and Mass Culture in Nineteenth Century America"
+-[Saxton, Alexander - "The Rise and Fall of the White Republic: Class Politics and Mass Culture in Nineteenth Century America"](http://www.goodreads.com/book/show/334358.The_Rise_and_Fall_of_the_White_Republic?from_search=true)
 
--Takaki, Ronald - "A Different Mirror: A History of Multicultural America"
+-[Takaki, Ronald - "A Different Mirror: A History of Multicultural America"](http://www.goodreads.com/book/show/37564.A_Different_Mirror?from_search=true)
 
--Woodward, C Vann - "The Strange Career of Jim Crow"
+-[Woodward, C Vann - "The Strange Career of Jim Crow"](http://www.goodreads.com/book/show/97484.The_Strange_Career_of_Jim_Crow)
 
  
 **Examining the Nature of Race**
 
--Hacker, Andrew - "Two Nations: Black and White, Separate, Hostile, Unequal"
+-[Hacker, Andrew - "Two Nations: Black and White, Separate, Hostile, Unequal"](http://www.goodreads.com/book/show/346796.Two_Nations?from_search=true)
 
--Hooks, Bell - "Black Looks: Race and Representation"
+-[Hooks, Bell - "Black Looks: Race and Representation"](http://www.goodreads.com/book/show/529568.Black_Looks?from_search=true)
 
--Ignatiev, Noel - "How the Irish Became White"
+-[Ignatiev, Noel - "How the Irish Became White"](http://www.goodreads.com/book/show/305686.How_the_Irish_Became_White?from_search=true)
 
--Muhammad, Khalil Gibran - "The Condemnation of Blackness: Race, Crime, and the Making of Modern Urban America"
+-[Muhammad, Khalil Gibran - "The Condemnation of Blackness: Race, Crime, and the Making of Modern Urban America"](http://www.goodreads.com/book/show/7093931-the-condemnation-of-blackness?from_search=true)
 
--Mydral, Gunnar - "An American Dilemma: The Negro Problem and Modern Democracy"
+-[Mydral, Gunnar - "An American Dilemma: The Negro Problem and Modern Democracy"](http://www.goodreads.com/book/show/781857.An_American_Dilemma?from_search=true)
 
--Painter, Nell Irvin - "The History of White People"
+-[Painter, Nell Irvin - "The History of White People"](http://www.goodreads.com/book/show/6919721-the-history-of-white-people?from_search=true)
 
 -Omi, Michael 
 -Winant, Howard - "Racial Formation in the United States"
