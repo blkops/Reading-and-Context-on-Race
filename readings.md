@@ -3,16 +3,15 @@
 
 **Historical Context of Racial Oppression (in the USA)**
 
--Lynch, Willie - "The Making of a Slave"
+-[Lynch, Willie - "The Making of a Slave"](http://www.iupui.edu/~blacksu/PDF%20Documents/Documents/WillieLynchLetter.pdf)
 
--Blackmon, Douglas A. - "Slavery By Another Name"
+-[Blackmon, Douglas A. - "Slavery By Another Name"](http://www.amazon.com/Slavery-Another-Name-Re-Enslavement-Americans/dp/0385722702)
 
--Churchill, Ward 
--Vander Wall, Jim -  "Agents of Repression: The FBI's Secret Wars Against the Black Panther Party and the American Indian Movement"
+-[Churchill, Ward; Vander Wall, Jim -  "Agents of Repression: The FBI's Secret Wars Against the Black Panther Party and the American Indian Movement"](http://www.amazon.com/Agents-Repression-Against-American-Movement/dp/0896082938/ref=sr_1_1?ie=UTF8&qid=1422491699&sr=8-1&keywords=Agents+of+Repression%3A+The+FBI%27s+Secret+Wars+Against+the+Black+Panther+Party+and+the+American+Indian+Movement%22)
 
--DuBois, W.E.B. - "Black Reconstruction"
+-[DuBois, W.E.B. - "Black Reconstruction"](http://www.socialism.com/drupal-6.8/sites/all/pdf/class/Du%20Bois-Black%20Reconstruction%20in%20America.PDF)
 
--Lott, Eric - "Love and Theft: Blackface Minstrelsy and the American Working Class"
+-[Lott, Eric - "Love and Theft: Blackface Minstrelsy and the American Working Class"](http://www.amazon.com/Love-Theft-Blackface-Minstrelsy-American/dp/0195320557)
 
 -Saxton, Alexander - The Rise and Fall of the White Republic: Class Politics and Mass Culture in Nineteenth Century America"
 
