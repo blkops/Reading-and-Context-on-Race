@@ -34,20 +34,18 @@
 
 -[Painter, Nell Irvin - "The History of White People"](http://www.goodreads.com/book/show/6919721-the-history-of-white-people?from_search=true)
 
--Omi, Michael 
--Winant, Howard - "Racial Formation in the United States"
+-[Omi, Michael, Winant, Howard - "Racial Formation in the United States"](http://www.goodreads.com/book/show/248626.Racial_Formation_in_the_United_States)
 
+-[Wise, Tim - "White Like Me: Reflections on Race from a Privileged Son"](http://www.goodreads.com/book/show/88362.White_Like_Me)
 
--Wise, Tim - "White Like Me: Reflections on Race from a Privileged Son"
+-[Wise, Tim - "Dear White America: Letter to a New Minority"](http://www.goodreads.com/book/show/10873538-dear-white-america)
 
--Wise, Tim - "Dear White America: Letter to a New Minority"
-
--Wise, Tim - "Colorblind: The Rise of Post-Racial Politics & the Retreat from Racial Equity"
+-[Wise, Tim - "Colorblind: The Rise of Post-Racial Politics & the Retreat from Racial Equity"](http://www.goodreads.com/book/show/7016267-colorblind)
 
  
 **Race and the Justice System**
 
--Alexander, Michelle - "The New Jim Crow: Mass Incarceration in the Age of Colorblindness"
+-[Alexander, Michelle - "The New Jim Crow: Mass Incarceration in the Age of Colorblindness"](http://www.goodreads.com/book/show/6792458-the-new-jim-crow)
 
 -Barker, Vanessa - "The Politics of Imprisonment"
 
