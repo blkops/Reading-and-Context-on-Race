@@ -47,16 +47,15 @@
 
 -[Alexander, Michelle - "The New Jim Crow: Mass Incarceration in the Age of Colorblindness"](http://www.goodreads.com/book/show/6792458-the-new-jim-crow)
 
--Barker, Vanessa - "The Politics of Imprisonment"
+-[Barker, Vanessa - "The Politics of Imprisonment"](http://www.goodreads.com/book/show/7176814-the-politics-of-imprisonment)
 
--Braman, Donald - "Doing Time on the Outside"
+-[Braman, Donald - "Doing Time on the Outside"](http://www.goodreads.com/book/show/773485.Doing_Time_on_the_Outside)
 
--Clear, Todd R. - "Imprisoning Communities: How Mass Incarceration Makes Disadvantaged Communities Worse"
+-[Clear, Todd R. - "Imprisoning Communities: How Mass Incarceration Makes Disadvantaged Communities Worse"](http://www.amazon.com/Imprisoning-Communities-Incarceration-Disadvantaged-Neighborhoods-ebook/dp/B0054WBMU6/ref=sr_1_fkmr0_1?ie=UTF8&qid=1423792948&sr=8-1-fkmr0&keywords=Clear%2C+Todd+R.+-+%22Imprisoning+Communities%3A+How+Mass+Incarceration+Makes+Disadvantaged+Communities+Worse%22)
 
--Davis, Angela J. - "Arbitrary Justice: The Power of the American Prosecutor"
+-[Davis, Angela J. - "Arbitrary Justice: The Power of the American Prosecutor"](http://www.goodreads.com/book/show/221708.Arbitrary_Justice)
 
--Olgetree, Charles
--Sarat, Austin - "From Lynch Mobs to the Killing State: Race and the Death Penalty in America"
+-[Olgetree, Charles; Sarat, Austin - "From Lynch Mobs to the Killing State: Race and the Death Penalty in America"](http://www.goodreads.com/book/show/2744324-from-lynch-mobs-to-the-killing-state)
  
  
 **Race and Other Areas of Impact**
