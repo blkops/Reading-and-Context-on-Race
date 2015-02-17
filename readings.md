@@ -60,61 +60,58 @@
  
 **Race and Other Areas of Impact**
 
--Chomsky, Aviva  - "Undocumented: How Immigration Became Illegal"
+-[Chomsky, Aviva  - "Undocumented: How Immigration Became Illegal"](http://www.goodreads.com/book/show/18339763-undocumented)
 
--Edsall, Thomas and Mary - "Chain Reaction: The Impact of Race, Rights, and Taxes on American Politics"
+-[Edsall, Thomas and Mary - "Chain Reaction: The Impact of Race, Rights, and Taxes on American Politics"](http://www.goodreads.com/book/show/350361.Chain_Reaction)
 
--Guinier, Lani
--Torres, Gerald - "The Miner's Canary: Enlisting Race, Resisting Power, Transforming Democracy"
+-[Guinier, Lani; Torres, Gerald - "The Miner's Canary: Enlisting Race, Resisting Power, Transforming Democracy"](http://www.goodreads.com/book/show/17631.The_Miner_s_Canary)
 
+-[Loury, Glenn - "The Anatomy of Racial Inequality"](http://www.goodreads.com/book/show/330838.The_Anatomy_of_Racial_Inequality)
 
--Loury, Glenn - "The Anatomy of Racial Inequality [political economy of race]"
+-[Massey, Douglas; Denton, Nancy - "American Apartheid: Segregation and the Making of the Underclass"](http://www.goodreads.com/book/show/252034.American_Apartheid)
 
--Massey, Douglas -Denton, Nancy - "American Apartheid: Segregation and the Making of the Underclass"
+-[Randall, Vernellia R. - "Dying While Black"](http://www.amazon.com/Dying-While-Black-Vernellia-Randall/dp/0977916006)
 
--Randall, Vernellia R. - "Dying While Black"
+-[Wacquant, Loic - "Punishing the Poor: The Neoliberal Government of Social Insecurity"](http://www.goodreads.com/book/show/6504869-punishing-the-poor)
 
--Wacquant, Loic - "Punishing the Poor: The Neoliberal Government of Social Insecurity"
+-[Wilson, David - "Inventing Black-on-Black Violence: Discourse, Space, and Representation"](http://www.goodreads.com/book/show/2135573.Inventing_Black_On_Black_Violence)
 
--Wilson, David - "Inventing Black-on-Black Violence: Discourse, Space, and Representation"
+-[Wilson, William Julius - "When Work Disappears: The World of the New Urban Poor"](http://www.goodreads.com/book/show/120365.When_Work_Disappears)
 
--Wilson, William Julius - "When Work Disappears: The World of the New Urban Poor"
+-[Wise, Tim - "Culture of Cruelty: How America's Elite Demonize the Poor, Valorize the Rich and Jeopardize the Future"](http://www.goodreads.com/book/show/17675069-culture-of-cruelty)
 
--Wise, Tim - "Culture of Cruelty: How America's Elite Demonize the Poor, Valorize the Rich and Jeopardize the Future"
-
--Wise, Tim  - "Affirmative Action: Racial Preference in Black and White"
+-[Wise, Tim  - "Affirmative Action: Racial Preference in Black and White"](http://www.goodreads.com/book/show/911753.Affirmative_Action)
 
  
 **Broader Examination of Oppression (not solely racial)**
 
--Cohen, Stanley - "States of Denial: Knowing About Atrocities and Suffering"
+-[Cohen, Stanley - "States of Denial: Knowing About Atrocities and Suffering"](http://www.goodreads.com/book/show/208984.States_of_Denial)
 
--Freire, Paulo - "Pedagogy of the Oppressed"
+-[Freire, Paulo - "Pedagogy of the Oppressed"](http://www.goodreads.com/book/show/72657.Pedagogy_of_the_Oppressed)
 
--Loewen, James W. - "Lies My Teacher Told Me: Everything Your American History Textbook Got Wrong"
+-[Loewen, James W. - "Lies My Teacher Told Me: Everything Your American History Textbook Got Wrong"](http://www.goodreads.com/book/show/296662.Lies_My_Teacher_Told_Me)
 
--Wacquant, Loic - "Prisons of Poverty"
+-[Wacquant, Loic - "Prisons of Poverty"](http://www.goodreads.com/book/show/6506298-prisons-of-poverty)
 
--Zinn, Howard - "A People’s History of the United States"
+-[Zinn, Howard - "A People’s History of the United States"](http://www.goodreads.com/book/show/2767.A_People_s_History_of_the_United_States)
 
  
 **For Children and Youth**
 
--Hoffman, Mary - "Amazing Grace" [for 3 and up]
--Binch, Caroline
+-[Hoffman, Mary; Binch, Caroline - "Amazing Grace": for ages 3 and up](http://www.goodreads.com/book/show/765193.Amazing_Grace)
 
--King, Dr. MLK - "I Have a Dream" (Book and CD) [all ages]
+-[King, Dr. MLK; illustrated by Nelson, Kadir - "I Have a Dream" (Book and CD): for ll ages]http://www.goodreads.com/book/show/16029151-i-have-a-dream)
 
--Knight, Margy Burns - "Africa Is Not a Country" [for 6 and up]
+-[Knight, Margy Burns - "Africa Is Not a Country": for ages 6 and up](http://www.goodreads.com/book/show/550120.Africa_Is_Not_a_Country)
 
--Levine, Ellen - "Henry's Freedom Box: A True Story from the Underground Railroad" [for 4-8]
+-[Levine, Ellen; illustrated by Nelson, Kadir - "Henry's Freedom Box: A True Story from the Underground Railroad": for ages 4-8](http://www.goodreads.com/book/show/315882.Henry_s_Freedom_Box)
 
--Levy, Debbie - "We Shall Overcome: The Story of a Song" [for 6-8]
+-[Levy, Debbie - "We Shall Overcome: The Story of a Song": for ages 6-8](http://www.goodreads.com/book/show/17899628-we-shall-overcome)
 
--Marzollo, Jean - "Happy Birthday, Martin Luther King Jr." [for 4-8]
+-[Marzollo, Jean - "Happy Birthday, Martin Luther King Jr.": for ages 4-8](http://www.goodreads.com/book/show/225077.Happy_Birthday_Martin_Luther_King_Jr_)
 
--Modica, Marianne - "The R Word" [for 12 and up]
+-[Modica, Marianne - "The R Word": for ages 12 and up](https://www.goodreads.com/book/show/13086526-the-r-word)
 
--Rappaport, Doreen - "Martin’s Big Words: The Life of Dr. MLK Jr." [for 5-11]
+-[Rappaport, Doreen; illustrated by Collier, Bryan - "Martin’s Big Words: The Life of Dr. MLK Jr.": for ages 5-11](http://www.goodreads.com/book/show/160943.Martin_s_Big_Words)
 
--Taylor, Mildred D. - "Roll of Thunder, Hear My Cry" [8 and up]
+-[Taylor, Mildred D. - "Roll of Thunder, Hear My Cry": for ages 8 and up](http://www.goodreads.com/book/show/310459.Roll_of_Thunder_Hear_My_Cry)
