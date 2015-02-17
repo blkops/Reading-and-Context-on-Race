@@ -98,20 +98,20 @@
  
 **For Children and Youth**
 
--[Hoffman, Mary; Binch, Caroline - "Amazing Grace": for ages 3 and up](http://www.goodreads.com/book/show/765193.Amazing_Grace)
+-[Hoffman, Mary; Binch, Caroline - "Amazing Grace": *for ages 3 and up*](http://www.goodreads.com/book/show/765193.Amazing_Grace)
 
--[King, Dr. MLK; illustrated by Nelson, Kadir - "I Have a Dream" (Book and CD): for ll ages]http://www.goodreads.com/book/show/16029151-i-have-a-dream)
+-[King, Dr. MLK; illustrated by Nelson, Kadir - "I Have a Dream" (Book and CD): *for all ages*](http://www.goodreads.com/book/show/16029151-i-have-a-dream)
 
--[Knight, Margy Burns - "Africa Is Not a Country": for ages 6 and up](http://www.goodreads.com/book/show/550120.Africa_Is_Not_a_Country)
+-[Knight, Margy Burns - "Africa Is Not a Country": *for ages 6 and up*](http://www.goodreads.com/book/show/550120.Africa_Is_Not_a_Country)
 
--[Levine, Ellen; illustrated by Nelson, Kadir - "Henry's Freedom Box: A True Story from the Underground Railroad": for ages 4-8](http://www.goodreads.com/book/show/315882.Henry_s_Freedom_Box)
+-[Levine, Ellen; illustrated by Nelson, Kadir - "Henry's Freedom Box: A True Story from the Underground Railroad": *for ages 4-8*](http://www.goodreads.com/book/show/315882.Henry_s_Freedom_Box)
 
--[Levy, Debbie - "We Shall Overcome: The Story of a Song": for ages 6-8](http://www.goodreads.com/book/show/17899628-we-shall-overcome)
+-[Levy, Debbie - "We Shall Overcome: The Story of a Song": *for ages 6-8*](http://www.goodreads.com/book/show/17899628-we-shall-overcome)
 
--[Marzollo, Jean - "Happy Birthday, Martin Luther King Jr.": for ages 4-8](http://www.goodreads.com/book/show/225077.Happy_Birthday_Martin_Luther_King_Jr_)
+-[Marzollo, Jean - "Happy Birthday, Martin Luther King Jr.": *for ages 4-8*](http://www.goodreads.com/book/show/225077.Happy_Birthday_Martin_Luther_King_Jr_)
 
--[Modica, Marianne - "The R Word": for ages 12 and up](https://www.goodreads.com/book/show/13086526-the-r-word)
+-[Modica, Marianne - "The R Word": *for ages 12 and up*](https://www.goodreads.com/book/show/13086526-the-r-word)
 
--[Rappaport, Doreen; illustrated by Collier, Bryan - "Martin’s Big Words: The Life of Dr. MLK Jr.": for ages 5-11](http://www.goodreads.com/book/show/160943.Martin_s_Big_Words)
+-[Rappaport, Doreen; illustrated by Collier, Bryan - "Martin’s Big Words: The Life of Dr. MLK Jr.": *for ages 5-11*](http://www.goodreads.com/book/show/160943.Martin_s_Big_Words)
 
--[Taylor, Mildred D. - "Roll of Thunder, Hear My Cry": for ages 8 and up](http://www.goodreads.com/book/show/310459.Roll_of_Thunder_Hear_My_Cry)
+-[Taylor, Mildred D. - "Roll of Thunder, Hear My Cry": *for ages 8 and up*](http://www.goodreads.com/book/show/310459.Roll_of_Thunder_Hear_My_Cry)
