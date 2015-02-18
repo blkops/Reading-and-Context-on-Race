@@ -1,5 +1,5 @@
 #Reading List
-**Here's a space to compile a list of readings for education on race issues of ALL SORTS. Feel free to add any texts or categories that need to be here! Also, if you know any places where digital copies exist for these resources, feel free to add a link!**
+Here's a space to compile a list of readings for education on race issues of ALL SORTS. Feel free to add any texts or categories that need to be here! Also, if you know any places where digital copies exist for these resources, feel free to add a link!**
 
 ###Historical Context of Racial Oppression (in the USA)
 -[Lynch, Willie - *The Making of a Slave*](http://www.iupui.edu/~blacksu/PDF%20Documents/Documents/WillieLynchLetter.pdf)
