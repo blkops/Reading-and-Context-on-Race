@@ -44,6 +44,8 @@ Here's a space to compile a list of readings for education on race issues of ALL
 
 -[Barker, Vanessa - *The Politics of Imprisonment*](http://www.goodreads.com/book/show/7176814-the-politics-of-imprisonment)
 
+-[Bonilla-Silva, Eduardo -  *Racism without Racists: Color-Blind Racism and the Persistence of Racial Inequality in America*](http://www.goodreads.com/book/show/433281.Racism_without_Racists)
+
 -[Braman, Donald - *Doing Time on the Outside*](http://www.goodreads.com/book/show/773485.Doing_Time_on_the_Outside)
 
 -[Clear, Todd R. - *Imprisoning Communities: How Mass Incarceration Makes Disadvantaged Communities Worse*](http://www.amazon.com/Imprisoning-Communities-Incarceration-Disadvantaged-Neighborhoods-ebook/dp/B0054WBMU6/ref=sr_1_fkmr0_1?ie=UTF8&qid=1423792948&sr=8-1-fkmr0&keywords=Clear%2C+Todd+R.+-+%22Imprisoning+Communities%3A+How+Mass+Incarceration+Makes+Disadvantaged+Communities+Worse%22)
@@ -52,7 +54,6 @@ Here's a space to compile a list of readings for education on race issues of ALL
 
 -[Olgetree, Charles; Sarat, Austin - *From Lynch Mobs to the Killing State: Race and the Death Penalty in America*](http://www.goodreads.com/book/show/2744324-from-lynch-mobs-to-the-killing-state)
 
--[Bonilla-Silva, Eduardo -  *Racism without Racists: Color-Blind Racism and the Persistence of Racial Inequality in America*](http://www.goodreads.com/book/show/433281.Racism_without_Racists)
 
 ###Race and Other Areas of Impact
 -[Chomsky, Aviva  - *Undocumented: How Immigration Became Illegal*](http://www.goodreads.com/book/show/18339763-undocumented)
