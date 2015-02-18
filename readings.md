@@ -1,4 +1,7 @@
+#Reading List
 **Here's a space to compile a list of readings for education on race issues of ALL SORTS. Feel free to add any texts or categories that need to be here! Also, if you know any places where digital copies exist for these resources, feel free to add a link!**
+
+---
 
 ###Historical Context of Racial Oppression (in the USA)
 -[Lynch, Willie - *The Making of a Slave*](http://www.iupui.edu/~blacksu/PDF%20Documents/Documents/WillieLynchLetter.pdf)
@@ -50,6 +53,7 @@
 -[Davis, Angela J. - *Arbitrary Justice: The Power of the American Prosecutor*](http://www.goodreads.com/book/show/221708.Arbitrary_Justice)
 
 -[Olgetree, Charles; Sarat, Austin - *From Lynch Mobs to the Killing State: Race and the Death Penalty in America*](http://www.goodreads.com/book/show/2744324-from-lynch-mobs-to-the-killing-state)
+
 -[Bonilla-Silva, Eduardo -  *Racism without Racists: Color-Blind Racism and the Persistence of Racial Inequality in America*](http://www.goodreads.com/book/show/433281.Racism_without_Racists)
 
 ###Race and Other Areas of Impact
