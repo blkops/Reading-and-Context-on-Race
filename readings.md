@@ -1,8 +1,8 @@
 # Reading List
 Here's a space to compile a list of readings for education on race issues
 of **ALL SORTS**. Feel free to add any texts or categories that need to be here!
-Also, if you know any places where digital copies exist for these resources,**
-feel free to add a link!** This list is far from conclusive and we're looking
+Also, if you know any places where digital copies exist for these resources,
+**feel free to add a link!** This list is far from conclusive and we're looking
 for help to complete it.
 
 ### Historical Context of Racial Oppression (in the USA)
