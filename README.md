@@ -1,2 +1,10 @@
 # Reading-and-Context-on-Race
-A document for reading  and reflection on the sources of race issues
+This repository holds links to material to show the history of race issues
+throughout the world (specifically the United States and European countries)
+against African Americans.
+
+  * [Reflectional Material about Race][1]
+  * [Reading Material][2]
+
+[1]: ./reflections.md
+[2]: ./readings.md
