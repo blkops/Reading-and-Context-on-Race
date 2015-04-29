@@ -6,7 +6,6 @@ Also, if you know any places where digital copies exist for these resources,
 for help to complete it.
 
 ### Historical Context of Racial Oppression (in the USA)
- - [Lynch, Willie - *The Making of a Slave*](http://www.iupui.edu/~blacksu/PDF%20Documents/Documents/WillieLynchLetter.pdf)
 
  - [Blackmon, Douglas A. - *Slavery By Another Name*](http://www.amazon.com/Slavery-Another-Name-Re-Enslavement-Americans/dp/0385722702)
 
